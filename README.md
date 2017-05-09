@@ -6,5 +6,4 @@ Now with even more edits!!!!
 
 Edit for the win
 
-
-Editing
+Changes Made
